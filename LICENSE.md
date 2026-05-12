@@ -1,4 +1,4 @@
-#  
+#  berry avenue rp Script vip is the best berry avenue rp Script, featuring auto-sell and infinite resources. Safe and powerful for all your needs.
 
 
 
